@@ -1,0 +1,2 @@
+# baby-boy
+[17:26:45] TurocMacto: one time whan i was 3 my mum said stay in the Backyard and stay there for an hour and i started playing and i started to hear orgasmik noises  and my dady arent home (henry mmmmmh ohhh whyyyy did you leave me [17:27:01] TurocMacto: i need to know whats going on lets go att an adventure [17:28:17] TurocMacto: o no the door is closed i nned to get in the window is open i can get in there  but i need to climb my way in
